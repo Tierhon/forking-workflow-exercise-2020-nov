@@ -5,7 +5,7 @@ In Norway we use the traditional premade spice packs with minced meat and vegeta
 - Fried minced meat mixed with spices
 - Cheese
 - Sour cream
-- Tomatoes
+- Tomatoes, cherry ones
 - Raw onions
 - Cucumber
 - Some kind of salad 
